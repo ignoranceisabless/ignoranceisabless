@@ -34,7 +34,7 @@ I ever so *rarely* age regress. It would be easy to know thanks to the __agere__
 
 I *dont* like controversy with anyone. I want **no** arguments, and *please* keep in my that i have **my boundaries set**. 
 
-And **please** keep in mind that *this* **account** was made to open a *new page*. In short, *Don't* **deadname** me. 
+And **please** keep in mind that *this* **account** was made to open a *new page*. In short, *Don't* **deadname** me or bring any unpleasent memories. 
 
 ***Thank you for having the time to read. ^^***
 
