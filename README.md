@@ -3,7 +3,7 @@
 ![tumblr_a27d43f5f37fd29da9c494e10b9e5cce_d10d959c_2048](https://github.com/user-attachments/assets/f2717df5-ad92-4666-887a-09765276f59f)
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=ignoranceisabless&label=☎%20&color=orange&style=plastic"  </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=ignoranceisabless&label=𓇳%20&color=red&style=plastic"  </p>
 
 ![tumblr_2fb4ce7c953b2a2671eda99f50cfd41b_af7a9f42_100](https://github.com/user-attachments/assets/b2bc1346-7d4a-4748-b944-696e9154e663) ![tumblr_c5db13748e5c61aa0925ff0da8784b52_9b7f5486_100](https://github.com/user-attachments/assets/62874d4a-396f-4f21-a801-9c07f8695f85) ![tumblr_05709a5f0eb47da30aee563c462a7338_7324b965_100](https://github.com/user-attachments/assets/1302d313-8cff-4f31-9f04-b231390d0904) ![tumblr_7e3851edaf934bdf90c4e477bbf39c92_b47f0f6b_100](https://github.com/user-attachments/assets/90542bb8-bb93-4ab5-a241-80121c3351cb) ![tumblr_4487e91a3999f08c3c2ae877cee96620_b296ad46_100](https://github.com/user-attachments/assets/41e60282-dfd2-4d6f-bac0-1f35ebfab4a1)
 
