@@ -7,7 +7,7 @@
 
 ![tumblr_2fb4ce7c953b2a2671eda99f50cfd41b_af7a9f42_100](https://github.com/user-attachments/assets/b2bc1346-7d4a-4748-b944-696e9154e663) ![tumblr_c5db13748e5c61aa0925ff0da8784b52_9b7f5486_100](https://github.com/user-attachments/assets/62874d4a-396f-4f21-a801-9c07f8695f85) ![tumblr_05709a5f0eb47da30aee563c462a7338_7324b965_100](https://github.com/user-attachments/assets/1302d313-8cff-4f31-9f04-b231390d0904) ![tumblr_7e3851edaf934bdf90c4e477bbf39c92_b47f0f6b_100](https://github.com/user-attachments/assets/90542bb8-bb93-4ab5-a241-80121c3351cb) ![4740262b](https://github.com/user-attachments/assets/a2bfe2e9-7b22-4645-adfa-27acebe97c68)
 
-Hello, I go by __Steve, or whatever name you prefer.__ Please refer to me by __He/it__ as i don't feel comfortable with any other pronoun.
+Hello, I go by __Dave / David, or whatever name you prefer.__ Please refer to me by __He/it__ as i don't feel comfortable with any other pronoun.
 
 ~~C+h~~ is *always* welcome, although please do ask first.
 
