@@ -11,7 +11,7 @@ Hello, I go by __Dave / David, or whatever name you prefer.__ Collectively __He/
 
 ~~C+h~~ is *always* welcome, although please do ask first.
 
-*AUDHD*. *Don't* ask my age and just keep in mind that i am not an __adult__.
+*AUDHD*. *Don't* ask me about my age.
 
 I **hide** and _block_ freely, so if you are hidden don't get upset.
 
