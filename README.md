@@ -12,7 +12,7 @@ I will remake this since its actual garbage. WIP
 ![tumblr_f3cf942335fce123d9e5c83e07b1c03d_8b912f04_100](https://github.com/user-attachments/assets/821c90dd-143b-4522-8210-3b01d13f2495) ![tumblr_6529a2b58fe2bcf46cc9540f4578b9be_01f041d3_100](https://github.com/user-attachments/assets/e8ec27d9-b399-448a-839a-a05c93bab156) ![tumblr_43a8df32ad36a5eba98f44f4763fdb58_2eff3ed3_100](https://github.com/user-attachments/assets/f087c369-8bd4-45ee-9324-92d91a9e3bd6) ![tumblr_e43eb03b79013f1538acc75180a17218_d33119b5_100](https://github.com/user-attachments/assets/d5224139-4b1d-497b-b3c0-76e4ec312f60)
 
 
-I *dont* like controversy with anyone. I want **no** arguments, and *please* keep in my that i have **my boundaries set**. 
+*please* keep in my that i have **my boundaries set**.
 
 And **please** keep in mind that *this* **account** was made to open a *new page*. In short, *Don't* **deadname** or bring any unpleasent memories. 
 
