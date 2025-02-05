@@ -7,30 +7,10 @@
 
 ![tumblr_2fb4ce7c953b2a2671eda99f50cfd41b_af7a9f42_100](https://github.com/user-attachments/assets/b2bc1346-7d4a-4748-b944-696e9154e663) ![tumblr_c5db13748e5c61aa0925ff0da8784b52_9b7f5486_100](https://github.com/user-attachments/assets/62874d4a-396f-4f21-a801-9c07f8695f85) ![tumblr_05709a5f0eb47da30aee563c462a7338_7324b965_100](https://github.com/user-attachments/assets/1302d313-8cff-4f31-9f04-b231390d0904) ![tumblr_7e3851edaf934bdf90c4e477bbf39c92_b47f0f6b_100](https://github.com/user-attachments/assets/90542bb8-bb93-4ab5-a241-80121c3351cb) ![4740262b](https://github.com/user-attachments/assets/a2bfe2e9-7b22-4645-adfa-27acebe97c68)
 
-Hello, I go by __Dave / David, or whatever name you prefer.__ Collectively __He/it__.
-
-~~C+h~~ is *always* welcome, although please do ask first.
-
-*AUDHD*. *Don't* ask me about my age.
-
-I **hide** and _block_ freely, so if you are hidden don't get upset.
-
-**Do not** spam apologize, and don't be rude to _me_ or **any** of my friends. **Don't** ignore us or you will be __unfriended__.
-
-**DNI** if i state it obviously. Read my tone and if im _acting_ rather __off__, then it means i'm not in the mood to speak or you did _something_ that made us **uncomfortable**.
+I will remake this since its actual garbage. WIP
 
 ![tumblr_f3cf942335fce123d9e5c83e07b1c03d_8b912f04_100](https://github.com/user-attachments/assets/821c90dd-143b-4522-8210-3b01d13f2495) ![tumblr_6529a2b58fe2bcf46cc9540f4578b9be_01f041d3_100](https://github.com/user-attachments/assets/e8ec27d9-b399-448a-839a-a05c93bab156) ![tumblr_43a8df32ad36a5eba98f44f4763fdb58_2eff3ed3_100](https://github.com/user-attachments/assets/f087c369-8bd4-45ee-9324-92d91a9e3bd6) ![tumblr_e43eb03b79013f1538acc75180a17218_d33119b5_100](https://github.com/user-attachments/assets/d5224139-4b1d-497b-b3c0-76e4ec312f60)
 
-
-I am a **c'link**. I don't feel like sharing what characters i c'link or kin. _Although_ i would share if i am **comfortable** enough via __conversations.__
-
-I have **extreme** mood swings, am a _ticking time bomb_ and might crave **attention** at times. _Iwec_.
-
-I have a **bunch** of hyperfixations, although my _attention focus_ is the same as a baby. I **might** get distracted *often*.
-
-I ever so *rarely* age regress. It would be easy to know thanks to the __agere__ that could be in my user. 
-
-**Ask** before mentioning triggering topics. Always ask, if you do __forget__ there is a **chance** i might grow _cold_.
 
 I *dont* like controversy with anyone. I want **no** arguments, and *please* keep in my that i have **my boundaries set**. 
 
